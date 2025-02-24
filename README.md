@@ -1,1 +1,1 @@
-Aplikasi ini Belum Sepenuh Beroperai dengan Baaikk
+Aplikasi ini Belum Sepenuh Beroperasi dengan Baaikk
